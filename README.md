@@ -1,1 +1,1 @@
-Website for sponsorship
+Website for sponsorship in esports
