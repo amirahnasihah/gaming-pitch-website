@@ -1,1 +1,1 @@
-Website for sponsorship in esports industry. the content writing based on feedback given
+Website for sponsorship in esports industry. the content writing based on feedback given. spa animation
